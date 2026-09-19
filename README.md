@@ -218,4 +218,4 @@ Cover - Comic Reader is a full free version software that includes all features 
 Start your comic reading journey today with Cover - Comic Reader — **download now and enjoy!**
 
 ---
-**Last updated:** 2026-09-18 22:02:59 UTC
+**Last updated:** 2026-09-19 00:46:24 UTC
